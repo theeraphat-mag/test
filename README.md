@@ -1,2 +1,2 @@
 #name theeraphat jantasuree 
-mag
+maggy
